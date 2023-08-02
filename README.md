@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @MexLacroix
+- 👀 I’m interested in game design 
